@@ -1,0 +1,1 @@
+In Bitcoin I trust.
